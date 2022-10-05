@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **fatwa.kurnia.budiman@gmail.com**
 
-- 📄 Know about my experiences [https://linkedin.com/in/fatwa-kurnia-budiman-645696141](https://id.linkedin.com/in/fatwa-kurnia-budiman-645696141)
+- 📄 Know about my experiences [https://linkedin.com/fatwa-kurnia-budiman-645696141](https://id.linkedin.com/in/fatwa-kurnia-budiman-645696141)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
